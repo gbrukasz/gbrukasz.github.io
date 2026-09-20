@@ -29,9 +29,10 @@ latest_posts:
 
 Pre-Law Student at the University of Illinois, Urbana-Champaign, studying Political Science and Spanish. I am currently exploring a Political Science concentration in International Relations, examining how countries cooperate and behave. 
 
-My time in school is being driven by the desire to understand perspectives that differ from my own, serve the community that continuously influences my growth, and build my passions for my future career.  Above all, my current experiences and commitments have taught me to maintain an open mind. My multilingual ambition, academic focus, and commitment to service shape my goal of a future in law. 
+I have always been drawn to the stories and perspectives that shape how people see the world. 
+My time in school is driven by the desire to understand perspectives that differ from my own, serve the community that continuously influences my growth, and build my passions for my future career.  Above all, my current experiences and commitments have taught me to maintain an open mind. My multilingual ambition, academic interests, and commitment to service shape my goal of a future in law. 
 
 Outside of academics, I enjoy playing tennis, baking, and horseback riding. 
 
-LinkedIn: https://www.linkedin.com/in/gabriellabrukasz/ 
+Connect with my on LinkedIn: https://www.linkedin.com/in/gabriellabrukasz/ 
 
